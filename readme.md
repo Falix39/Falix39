@@ -1,9 +1,6 @@
-# Hi There I m DaXer :smile: 
+# Hi There I m Falix
 
-### Junior Front End Web Developer 
-
-
-
+My Twitch Acconut: https://www.twitch.tv/falix39
 
 
 
